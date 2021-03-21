@@ -1,3 +1,0 @@
-IGNB
-TheShy
-rookie
